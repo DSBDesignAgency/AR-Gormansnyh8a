@@ -1,1 +1,0 @@
-# AR-Gormansnyh8a
